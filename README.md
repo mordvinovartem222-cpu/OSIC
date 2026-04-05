@@ -12,4 +12,3 @@ OSIT ©
 
 # связь
 Telegram: https://t.me/@BeluiGrib
-рп в которые автор сидит: https://t.me/terra_regnum
